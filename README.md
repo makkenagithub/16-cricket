@@ -6,6 +6,7 @@
 2. Shoulder dip
 3. Right hand V-shape
 4. BAT towards off-stump
+5. Head forward
 
 ### Bowling
 1. Lean forward
@@ -26,7 +27,7 @@
 5. Seam for all types ball
 6. Dont bowl fast. Bowl slow, but bowl fats only for few members
 7. Dont push the bowling hand two sides
-8. 
+8. Bowlig lo front lo weight vundali
 
 
 
