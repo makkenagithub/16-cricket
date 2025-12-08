@@ -17,6 +17,10 @@
 ### Batting
 1. Shoulder dip
 2. Go under the ball
+3. Dont do long extend
+4. Dont go backfoot for front foot ball
+5. Dont go frontfoot for backfoot ball
+6. Judge the ball from bowler releasing point.
 
 
 ### Bowling
